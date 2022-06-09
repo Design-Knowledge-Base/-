@@ -1,0 +1,1 @@
+[造紙廠](https://cyberstage0.blog.fc2.com/blog-entry-358.html)
